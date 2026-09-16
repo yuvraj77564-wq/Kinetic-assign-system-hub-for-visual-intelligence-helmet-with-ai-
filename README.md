@@ -1,0 +1,2 @@
+# Kinetic-assign-system-hub-for-visual-intelligence-helmet-with-ai-
+Ai Power smart helmets in the road safety with drought in a detection and overlap from vehicle tracking booking computer vision automatically emergency and integrated assistant for connectivity to save the peoples while they are got a accident in the golden hours and it also have a automatic call recording on it  and features that helps more safety
